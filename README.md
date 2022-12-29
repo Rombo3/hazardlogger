@@ -2,7 +2,7 @@
 <https://discord.gg/roblox'discord server'=]
 </p>
 
-#### Hazard-Token-Grabber.V2 was made by
+#### This token grabber maker was made by yours truley:
 Rombo3
 
 ## ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 🌟Free to use and free to give away, we love our community lol
