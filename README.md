@@ -1,9 +1,9 @@
 <p align="center">
-<https://discord.gg/TheeQ4bANN'discord server'=]
+<https://discord.gg/roblox'discord server'=]
 </p>
 
 #### Hazard-Token-Grabber.V2 was made by
-Love ❌ code ✅
+Rombo3
 
 ## ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 🌟Star This Repository If You Liked Hazard Token Grabber V2!
 
