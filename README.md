@@ -5,7 +5,7 @@
 #### Hazard-Token-Grabber.V2 was made by
 Rombo3
 
-## ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 🌟Star This Repository If You Liked Hazard Token Grabber V2!
+## ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 🌟Free to use and free to give away, we love our community lol
 
 ---
 
